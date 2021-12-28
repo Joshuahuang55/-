@@ -1,1 +1,1 @@
-# -
+# Machine learning - Green trademark
